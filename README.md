@@ -1,1 +1,1 @@
-Hello my name is Callum I have 2 guinea pigs 
+Hello my name is Callum I have 2 guinea pigs. One is called Shroom he is tri-coloured and the other one is called Tybalt he is brown and white. Both are named after characters from Gnomeo and Julliet. 
